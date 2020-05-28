@@ -8,5 +8,3 @@
 要时刻记得每个人的位置。
 
 算技能，算技能，算技能。
-
-[temp](https://www.windowscentral.com/how-set-ftp-server-windows-10)
