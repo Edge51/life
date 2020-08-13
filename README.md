@@ -4,15 +4,15 @@ Goal for my life.
 - Hokage.
 
 ## Daily schedule
-handwriting morning half an hour
-English
-opencourse
-study
-exercise during rest
+- handwriting morning half an hour
+- English
+- opencourse
+- study
+- exercise during rest
 
 ## in Aug. & Sep.
-Finish course study for semester.
-Abdominal exercise.
+- Finish course study for semester.
+- Abdominal exercise.
 
 ## in 2020
 ### study.
