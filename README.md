@@ -1,0 +1,2 @@
+# life
+stores life recipe
