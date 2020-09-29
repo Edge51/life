@@ -1,2 +1,2 @@
 # life
-stores life recipe
+Enjoy my life
